@@ -22,7 +22,7 @@ Web Developer
 
 i've been Web Developer
 
-* 🌍  I'm based in Bangkok, Thailand
+* 🌍  I'm based in ChiangMai, Thailand
 
 ---
 
